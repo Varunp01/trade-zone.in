@@ -1,0 +1,1 @@
+<h3>This website is permanently closed</h3>
